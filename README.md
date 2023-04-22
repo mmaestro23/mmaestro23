@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mmaestro23
+- 👀 I’m interested in developing softwares
+- 🌱 I’m currently learning Software Engineering
+- 💞️ I’m looking to collaborate on Git
+- 💬 Ask me about anuthing
+- 📫 How to reach me: ericmanzi1738@gmail.com
+- ⚡ Fun fact: Reach to me.
